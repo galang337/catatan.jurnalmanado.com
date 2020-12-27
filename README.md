@@ -1,0 +1,1 @@
+# catatan.jurnalmanado.com
